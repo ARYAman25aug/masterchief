@@ -1,4 +1,0 @@
-INSTRUCTIONS
-Cook the spaghetti according to the package instructions until al dente. Drain and set aside.
-Heat up a skillet and add the olive oil and butter. Saute the garlic until aromatic, then add the spaghetti. Season with salt, pepper, and chili flakes. Stir to combine well.
-Dish out, garnish with some parsley and serve immediately.
